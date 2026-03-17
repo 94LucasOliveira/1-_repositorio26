@@ -41,8 +41,8 @@
 
 ## 📫 Contato
 
-- 📧 Email: seuemail@email.com
-- 💼 LinkedIn: (adicione aqui depois)
+- 📧 Email: lucasdeolioveira.1994@gmail.com
+- 💼 LinkedIn: @94LucasOliveira
 
 ---
 
